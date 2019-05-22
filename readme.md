@@ -1,3 +1,3 @@
 #hi-world
 
-Am jenny and something intersting about me is that am a happy soul.
+Am jenny and something interesting about me is that am a happy soul.
